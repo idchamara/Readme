@@ -5,11 +5,11 @@
 
 ---
 
-- 🔭 I’m currently working on **Test**
+- 🔭 I’m currently working as a **Dataentry Operator at MAS Holdings**
 
 - 🌱 I’m currently learning **Programming**
 
-- 📫 How to reach me **E180928@esoft.academy**
+- 📫 How to reach me **chamaraku@masholdings.com**
 
 - 📄 Know about my experiences [https://drive.google.com/drive/folders/10XgzsKZGMchAaFWnQsjk4EG25oG-kpex](https://drive.google.com/drive/folders/10XgzsKZGMchAaFWnQsjk4EG25oG-kpex)
 
